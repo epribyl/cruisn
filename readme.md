@@ -1,1 +1,1 @@
-![cwusa Logo](/cruisnworldmarquee.png)
+![cwusa Logo](/cruisnworldmarquee.jpg)
